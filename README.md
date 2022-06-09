@@ -1,0 +1,1 @@
+This dictionaries do have source from http://dicto.org.ru/xdxf.html page. I have inspiration in making new dictionaries because I so adore languages! And (PS) I have Pocketbook 626 Touch Lux 3 and I hope these dictionaries will be compatible with Pocketbook devices in .dic format and  will make your life easier!
